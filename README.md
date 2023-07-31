@@ -1,0 +1,2 @@
+- 👋 sou a @natyricarte
+- 👀 aprendendo a usar o github
